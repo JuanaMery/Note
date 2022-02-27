@@ -1121,7 +1121,7 @@ we are not the center of anything; We are miniscule bundles of evanescent matter
 
 ## 成功success
 
-take small steps reach your goal
+take small steps to reach your goal
 
 ## **Relationship**
 
